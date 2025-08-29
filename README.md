@@ -8,6 +8,8 @@ ARTIIIST✨ except I'm demotivated to draw like 70% of the time ⚰️
 
 I'm in college so I'm not online as often on weekdays 💔
 
+**SIGN MY ATA! ･°˖✧◝(⁰▿⁰)◜✧˖°.**
+
 # ─── ⋆⋅☆⋅⋆ ──
 
 🟢 ᯓ★ Active right now! HAAIIIAIAIAIAIIII ٩(^ᗜ^ )و
@@ -40,6 +42,7 @@ DO NOT COPY OR POST MY PT SKNS ONLINE PLS!!! Looking at you pinterest addicts �
 ELLIOT AND 1X4 AND INFECTED MY BELOVEDDDDSSSS 😍😍😍😍😍😍🤑🤑🤑🤑
 
 IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING EACH OTHER LELELELELEL 😋😋😋😋
+
 *The only ones I don't ship in Forsaken are the kiddos! (c00lkidd, bluudud, pr3typriincess)*
 
 ## **𝓦𝓔 𝓼𝓱𝓸𝓾𝓵𝓭 𝓪𝓵𝓵 𝓵𝓸𝓿𝓮 𝓔𝓵𝓵𝓲𝓸𝓽 😋**

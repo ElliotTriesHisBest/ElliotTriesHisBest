@@ -20,6 +20,8 @@ I'm in college so I'm not online as often on weekdays 💔
 
 ⛔️ ᯓ★ AFK/offtab, most likely too busy to check PT, must W2I but will still take a bit to respond! "( – ⌓ – )
 
+Sometimes I forget to change my status tho, but the middle ground will almost always be 🌙! Also I have noticed that I sometimes fall asleep while playing pt.. whoops haha... （´∇｀''）
+
 # ─── ⋆⋅☆⋅⋆ ──
 
 ### BOUNDARIES!!!

@@ -8,9 +8,9 @@ ARTIIIST✨ except I'm demotivated to draw like 70% of the time ⚰️
 
 I'm in college so I'm not online as often on weekdays 💔
 
-**SIGN MY ATA! ･°˖✧◝(⁰▿⁰)◜✧˖°.** 
+### **SIGN MY ATA! ･°˖✧◝(⁰▿⁰)◜✧˖°.** 
 
-(WARNING: Please do not stir up drama or vent to me in my ata. I'm literally just some random guy on the internet and I can't help you with any problems you are facing, especially when I don't know you that well. Please bring up your own problems to people who really trust like your friends, thank youuu ⚰️)
+*(WARNING: Please do not stir up drama or vent to me in my ata. I'm literally just some random guy on the internet and I can't help you with any problems you are facing, especially when I don't know you that well. Please bring up your own problems to people who you really trust like your friends, thank youuu ⚰️)*
 
 # ─── ⋆⋅☆⋅⋆ ──
 

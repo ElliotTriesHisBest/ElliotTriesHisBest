@@ -69,6 +69,8 @@ IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING 
 
 ᯓ★ I.V.Y / just-a-joey (youtube & tumblr)
 
+ᯓ★ zalia_snowDuck (youtube, tiktok, & twitter)
+
 ᯓ★ theraeveerie (tumblr)
 
 ᯓ★ cuppochino (tumblr)

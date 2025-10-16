@@ -71,10 +71,10 @@ IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING 
 
 ᯓ★ zalia_snowDuck (youtube, tiktok, & twitter)
 
-ᯓ★ theraeveerie (tumblr)
+ᯓ★ theraeveerie (tumblr & tiktok)
 
 ᯓ★ cuppochino (tumblr)
 
 ᯓ★ sun0vaa / moon0vaa (tiktok)
 
-ᯓ★ Cossaint (youtube)
+ᯓ★ Cossaint (youtube & tiktok)

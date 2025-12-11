@@ -55,7 +55,7 @@ IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING 
 ![ELLIOT MY BELOVEDDD](https://github.com/user-attachments/assets/6454e880-cc74-4988-b393-7567dd160fa6)
 
 
-**PEAK FORSAKEN ARTISTS I RECCOMMEND‼️‼️‼️**
+**PEAK ARTISTS I RECCOMMEND‼️‼️‼️**
 
 ᯓ★ nikko_kage (tiktok & twitter)
 
@@ -69,12 +69,20 @@ IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING 
 
 ᯓ★ I.V.Y / just-a-joey (youtube & tumblr)
 
-ᯓ★ zalia_snowDuck (youtube, tiktok, & twitter)
+ᯓ★ 4lin3th / 4lin.k (tiktok)
 
 ᯓ★ theraeveerie (tumblr & tiktok)
+
+ᯓ★ tun3rr (tumblr & tiktok)
 
 ᯓ★ cuppochino (tumblr)
 
 ᯓ★ sun0vaa / moon0vaa (tiktok)
 
 ᯓ★ Cossaint (youtube & tiktok)
+
+ᯓ★ eni / eniigimi (tiktok)
+
+ᯓ★ IzPurple (youtube)
+
+ᯓ★ CedOrSomebody (tiktok)

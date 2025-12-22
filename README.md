@@ -47,8 +47,6 @@ ELLIOT AND 1X4 AND INFECTED MY BELOVEDDDDSSSS 😍😍😍😍😍😍🤑🤑�
 
 IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING EACH OTHER LELELELELEL 😋😋😋😋
 
-*The only ones I don't ship in Forsaken are the kiddos! (c00lkidd, bluudud, pr3typriincess)*
-
 ## **𝓦𝓔 𝓼𝓱𝓸𝓾𝓵𝓭 𝓪𝓵𝓵 𝓵𝓸𝓿𝓮 𝓔𝓵𝓵𝓲𝓸𝓽 😋**
 
 ᴀʀᴛ ʙʏ sᴏɴʏᴀғɪɪsʜ ᴏɴ x/ᴛᴡɪᴛᴛᴇʀ

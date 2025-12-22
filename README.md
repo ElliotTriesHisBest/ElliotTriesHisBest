@@ -41,7 +41,7 @@ DO NOT COPY OR POST MY PT SKNS ONLINE PLS!!! Looking at you pinterest addicts �
 
 # ─── ⋆⋅☆⋅⋆ ──
 
-**Other roblox games I enjoy!** ᯓ★ Forsaken(Main), Regretevator, GASA4, Let Him Go, SEWH, WAAPP, Pupi Midnight Munchie
+**Other roblox games I enjoy!** ᯓ★ WAAPP, Forsaken(?), Regretevator, GASA4, Let Him Go, SEWH, PMM, TROR, TPC
 
 ELLIOT AND 1X4 AND INFECTED MY BELOVEDDDDSSSS 😍😍😍😍😍😍🤑🤑🤑🤑
 

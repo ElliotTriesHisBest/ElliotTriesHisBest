@@ -64,11 +64,11 @@ IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING 
 
 ᯓ★ aamx1i (twitter)
 
-ᯓ★ yabhibi (twitter)
-
 ᯓ★ I.V.Y / just-a-joey (youtube & tumblr)
 
 ᯓ★ 4lin3th / 4lin.k (tiktok)
+
+ᯓ★ nonameornome (tiktok)
 
 ᯓ★ theraeveerie (tumblr & tiktok)
 
@@ -84,4 +84,4 @@ IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING 
 
 ᯓ★ IzPurple (youtube)
 
-ᯓ★ CedOrSomebody (tiktok)
+ᯓ★ CedOrSomebody (youtube & tiktok)

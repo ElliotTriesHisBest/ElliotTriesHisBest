@@ -78,7 +78,7 @@ IM A MULTISHIPPER IDGAF ABOUT SHIPPING WARS BECAUSE EVERYONE IS ALREADY KISSING 
 
 ᯓ★ sun0vaa / moon0vaa (tiktok)
 
-ᯓ★ Cossaint (youtube & tiktok)
+ᯓ★ CeiloShin (tiktok)
 
 ᯓ★ eni / eniigimi (tiktok)
 
